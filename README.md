@@ -1,2 +1,2 @@
-# MohamedOsman
+# Mohamed Osman
 Portfolio
